@@ -1,2 +1,2 @@
 Eugene Goncharov
-https://www.codecademy.com/users/eugen.goncharov/achievements
+https://www.codecademy.com/users/EGoncharov/achievements
